@@ -1,1 +1,0 @@
-# onurvatansever6.github.io
